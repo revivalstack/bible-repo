@@ -1,0 +1,101 @@
+<sup>1</sup> 
+And behold, a man of God went from Judah to Bethel by the word of the Lord, and Jeroboam stood by the altar to burn incense. 
+
+<sup>2</sup> 
+Then he cried out against the altar by the word of the Lord, and said, "O altar, altar! Thus says the Lord: 'Behold, a child, Josiah by name, shall be born to the house of David; and on you he shall sacrifice the priests of the high places who burn incense on you, and men's bones shall be burned on you.' " 
+
+<sup>3</sup> 
+And he gave a sign the same day, saying, "This is the sign which the Lord has spoken: Surely the altar shall split apart, and the ashes on it shall be poured out." 
+
+<sup>4</sup> 
+So it came to pass when King Jeroboam heard the saying of the man of God, who cried out against the altar in Bethel, that he stretched out his hand from the altar, saying, "Arrest him!" Then his hand, which he stretched out toward him, withered, so that he could not pull it back to himself. 
+
+<sup>5</sup> 
+The altar also was split apart, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of the Lord. 
+
+<sup>6</sup> 
+Then the king answered and said to the man of God, "Please entreat the favor of the Lord your God, and pray for me, that my hand may be restored to me." So the man of God entreated the Lord, and the king's hand was restored to him, and became as before. 
+
+<sup>7</sup> 
+Then the king said to the man of God, "Come home with me and refresh yourself, and I will give you a reward." 
+
+<sup>8</sup> 
+But the man of God said to the king, "If you were to give me half your house, I would not go in with you; nor would I eat bread nor drink water in this place. 
+
+<sup>9</sup> 
+For so it was commanded me by the word of the Lord, saying, 'You shall not eat bread, nor drink water, nor return by the same way you came.' " 
+
+<sup>10</sup> 
+So he went another way and did not return by the way he came to Bethel.
+
+<sup>11</sup> 
+Now an old prophet dwelt in Bethel, and his sons came and told him all the works that the man of God had done that day in Bethel; they also told their father the words which he had spoken to the king. 
+
+<sup>12</sup> 
+And their father said to them, "Which way did he go?" For his sons had seen which way the man of God went who came from Judah. 
+
+<sup>13</sup> 
+Then he said to his sons, "Saddle the donkey for me." So they saddled the donkey for him; and he rode on it, 
+
+<sup>14</sup> 
+and went after the man of God, and found him sitting under an oak. Then he said to him, "Are you the man of God who came from Judah?" And he said, "I am." 
+
+<sup>15</sup> 
+Then he said to him, "Come home with me and eat bread." 
+
+<sup>16</sup> 
+And he said, "I cannot return with you nor go in with you; neither can I eat bread nor drink water with you in this place. 
+
+<sup>17</sup> 
+For I have been told by the word of the Lord, 'You shall not eat bread nor drink water there, nor return by going the way you came.' " 
+
+<sup>18</sup> 
+He said to him, "I too am a prophet as you are, and an angel spoke to me by the word of the Lord, saying, 'Bring him back with you to your house, that he may eat bread and drink water.' " (He was lying to him.) 
+
+<sup>19</sup> 
+So he went back with him, and ate bread in his house, and drank water. 
+
+<sup>20</sup> 
+Now it happened, as they sat at the table, that the word of the Lord came to the prophet who had brought him back; 
+
+<sup>21</sup> 
+and he cried out to the man of God who came from Judah, saying, "Thus says the Lord: 'Because you have disobeyed the word of the Lord, and have not kept the commandment which the Lord your God commanded you, 
+
+<sup>22</sup> 
+but you came back, ate bread, and drank water in the place of which the Lord said to you, "Eat no bread and drink no water," your corpse shall not come to the tomb of your fathers.' " 
+
+<sup>23</sup> 
+So it was, after he had eaten bread and after he had drunk, that he saddled the donkey for him, the prophet whom he had brought back. 
+
+<sup>24</sup> 
+When he was gone, a lion met him on the road and killed him. And his corpse was thrown on the road, and the donkey stood by it. The lion also stood by the corpse. 
+
+<sup>25</sup> 
+And there, men passed by and saw the corpse thrown on the road, and the lion standing by the corpse. Then they went and told it in the city where the old prophet dwelt. 
+
+<sup>26</sup> 
+Now when the prophet who had brought him back from the way heard it, he said, "It is the man of God who was disobedient to the word of the Lord. Therefore the Lord has delivered him to the lion, which has torn him and killed him, according to the word of the Lord which He spoke to him." 
+
+<sup>27</sup> 
+And he spoke to his sons, saying, "Saddle the donkey for me." So they saddled it. 
+
+<sup>28</sup> 
+Then he went and found his corpse thrown on the road, and the donkey and the lion standing by the corpse. The lion had not eaten the corpse nor torn the donkey. 
+
+<sup>29</sup> 
+And the prophet took up the corpse of the man of God, laid it on the donkey, and brought it back. So the old prophet came to the city to mourn, and to bury him. 
+
+<sup>30</sup> 
+Then he laid the corpse in his own tomb; and they mourned over him, saying, "Alas, my brother!" 
+
+<sup>31</sup> 
+So it was, after he had buried him, that he spoke to his sons, saying, "When I am dead, then bury me in the tomb where the man of God is buried; lay my bones beside his bones. 
+
+<sup>32</sup> 
+For the saying which he cried out by the word of the Lord against the altar in Bethel, and against all the shrines on the high places which are in the cities of Samaria, will surely come to pass." 
+
+<sup>33</sup> 
+After this event Jeroboam did not turn from his evil way, but again he made priests from every class of people for the high places; whoever wished, he consecrated him, and he became one of the priests of the high places. 
+
+<sup>34</sup> 
+And this thing was the sin of the house of Jeroboam, so as to exterminate and destroy it from the face of the earth.

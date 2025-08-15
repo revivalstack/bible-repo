@@ -1,0 +1,215 @@
+<sup>1</sup> 
+
+Now when the Lord knew (learned, became aware) that the Pharisees had been told that Jesus was winning and baptizing more disciples than John-- 
+
+<sup>2</sup> 
+
+Though Jesus Himself did not baptize, but His disciples-- 
+
+<sup>3</sup> 
+
+He left Judea and returned to Galilee. 
+
+<sup>4</sup> 
+
+It was necessary for Him to go through Samaria. 
+
+<sup>5</sup> 
+
+And in doing so, He arrived at a Samaritan town called Sychar, near the tract of land that Jacob gave to his son Joseph. 
+
+<sup>6</sup> 
+
+And Jacob's well was there. So Jesus, tired as He was from His journey, sat down [to rest] by the well. It was then about the sixth hour (about noon). 
+
+<sup>7</sup> 
+
+Presently, when a woman of Samaria came along to draw water, Jesus said to her, Give Me a drink-- 
+
+<sup>8</sup> 
+
+For His disciples had gone off into the town to buy food-- 
+
+<sup>9</sup> 
+
+The Samaritan woman said to Him, How is it that You, being a Jew, ask me, a Samaritan [and a] woman, for a drink?--For the Jews have nothing to do with the Samaritans-- 
+
+<sup>10</sup> 
+
+Jesus answered her, If you had only known and had recognized God's gift and Who this is that is saying to you, Give Me a drink, you would have asked Him [instead] and He would have given you living water. 
+
+<sup>11</sup> 
+
+She said to Him, Sir, You have nothing to draw with [no drawing bucket] and the well is deep; how then can You provide living water? [Where do You get Your living water?] 
+
+<sup>12</sup> 
+
+Are You greater than and superior to our ancestor Jacob, who gave us this well and who used to drink from it himself, and his sons and his cattle also? 
+
+<sup>13</sup> 
+
+Jesus answered her, All who drink of this water will be thirsty again. 
+
+<sup>14</sup> 
+
+But whoever takes a drink of the water that I will give him shall never, no never, be thirsty any more. But the water that I will give him shall become a spring of water welling up (flowing, bubbling) [continually] within him unto (into, for) eternal life. 
+
+<sup>15</sup> 
+
+The woman said to Him, Sir, give me this water, so that I may never get thirsty nor have to come [continually all the way] here to draw. 
+
+<sup>16</sup> 
+
+At this, Jesus said to her, Go, call your husband and come back here. 
+
+<sup>17</sup> 
+
+The woman answered, I have no husband. Jesus said to her, You have spoken truly in saying, I have no husband. 
+
+<sup>18</sup> 
+
+For you have had five husbands, and the man you are now living with is not your husband. In this you have spoken truly. 
+
+<sup>19</sup> 
+
+The woman said to Him, Sir, I see and understand that You are a prophet. 
+
+<sup>20</sup> 
+
+Our forefathers worshiped on this mountain, but you [Jews] say that Jerusalem is the place where it is necessary and proper to worship. 
+
+<sup>21</sup> 
+
+Jesus said to her, Woman, believe Me, a time is coming when you will worship the Father neither [merely] in this mountain nor [merely] in Jerusalem. 
+
+<sup>22</sup> 
+
+You [Samaritans] do not know what you are worshiping [you worship what you do not comprehend]. We do know what we are worshiping [we worship what we have knowledge of and understand], for [after all] salvation comes from [among] the Jews. 
+
+<sup>23</sup> 
+
+A time will come, however, indeed it is already here, when the true (genuine) worshipers will worship the Father in spirit and in truth (reality); for the Father is seeking just such people as these as His worshipers. 
+
+<sup>24</sup> 
+
+God is a Spirit (a spiritual Being) and those who worship Him must worship Him in spirit and in truth (reality). 
+
+<sup>25</sup> 
+
+The woman said to Him, I know that Messiah is coming, He Who is called the Christ (the Anointed One); and when He arrives, He will tell us everything we need to know and make it clear to us. 
+
+<sup>26</sup> 
+
+Jesus said to her, I Who now speak with you am He. 
+
+<sup>27</sup> 
+
+Just then His disciples came and they wondered (were surprised, astonished) to find Him talking with a woman [a married woman]. However, not one of them asked Him, What are You inquiring about? or What do You want? or, Why do You speak with her? 
+
+<sup>28</sup> 
+
+Then the woman left her water jar and went away to the town. And she began telling the people, 
+
+<sup>29</sup> 
+
+Come, see a Man Who has told me everything that I ever did! Can this be [is not this] the Christ? [Must not this be the Messiah, the Anointed One?] 
+
+<sup>30</sup> 
+
+So the people left the town and set out to go to Him. 
+
+<sup>31</sup> 
+
+Meanwhile, the disciples urged Him saying, Rabbi, eat something. 
+
+<sup>32</sup> 
+
+But He assured them, I have food (nourishment) to eat of which you know nothing and have no idea. 
+
+<sup>33</sup> 
+
+So the disciples said one to another, Has someone brought Him something to eat? 
+
+<sup>34</sup> 
+
+Jesus said to them, My food (nourishment) is to do the will (pleasure) of Him Who sent Me and to accomplish and completely finish His work. 
+
+<sup>35</sup> 
+
+Do you not say, It is still four months until harvest time comes? Look! I tell you, raise your eyes and observe the fields and see how they are already white for harvesting. 
+
+<sup>36</sup> 
+
+Already the reaper is getting his wages [he who does the cutting now has his reward], for he is gathering fruit (crop) unto life eternal, so that he who does the planting and he who does the reaping may rejoice together. 
+
+<sup>37</sup> 
+
+For in this the saying holds true, One sows and another reaps. 
+
+<sup>38</sup> 
+
+I sent you to reap a crop for which you have not toiled. Other men have labored and you have stepped in to reap the results of their work. 
+
+<sup>39</sup> 
+
+Now numerous Samaritans from that town believed in and trusted in Him because of what the woman said when she declared and testified, He told me everything that I ever did. 
+
+<sup>40</sup> 
+
+So when the Samaritans arrived, they asked Him to remain with them, and He did stay there two days. 
+
+<sup>41</sup> 
+
+Then many more believed in and adhered to and relied on Him because of His personal message [what He Himself said]. 
+
+<sup>42</sup> 
+
+And they told the woman, Now we no longer believe (trust, have faith) just because of what you said; for we have heard Him ourselves [personally], and we know that He truly is the Savior of the world, the Christ. 
+
+<sup>43</sup> 
+
+But after these two days Jesus went on from there into Galilee-- 
+
+<sup>44</sup> 
+
+Although He Himself declared that a prophet has no honor in his own country. 
+
+<sup>45</sup> 
+
+However, when He came into Galilee, the Galileans also welcomed Him and took Him to their hearts eagerly, for they had seen everything that He did in Jerusalem during the Feast; for they too had attended the Feast. 
+
+<sup>46</sup> 
+
+So Jesus came again to Cana of Galilee, where He had turned the water into wine. And there was a certain royal official whose son was lying ill in Capernaum. 
+
+<sup>47</sup> 
+
+Having heard that Jesus had come back from Judea into Galilee, he went away to meet Him and began to beg Him to come down and cure his son, for he was lying at the point of death. 
+
+<sup>48</sup> 
+
+Then Jesus said to him, Unless you see signs and miracles happen, you [people] never will believe (trust, have faith) at all. 
+
+<sup>49</sup> 
+
+The king's officer pleaded with Him, Sir, do come down at once before my little child is dead! 
+
+<sup>50</sup> 
+
+Jesus answered him, Go in peace; your son will live! And the man put his trust in what Jesus said and started home. 
+
+<sup>51</sup> 
+
+But even as he was on the road going down, his servants met him and reported, saying, Your son lives! 
+
+<sup>52</sup> 
+
+So he asked them at what time he had begun to get better. They said, Yesterday during the seventh hour (about one o'clock in the afternoon) the fever left him. 
+
+<sup>53</sup> 
+
+Then the father knew that it was at that very hour when Jesus had said to him, Your son will live. And he and his entire household believed (adhered to, trusted in, and relied on Jesus). 
+
+<sup>54</sup> 
+
+This is the second sign (wonderwork, miracle) that Jesus performed after He had come out of Judea into Galilee.

@@ -1,0 +1,63 @@
+<sup>1</sup> 
+
+A long time after that, when the Lord had given Israel rest from all their enemies round about, and Joshua had grown old and advanced in years, 
+
+<sup>2</sup> 
+
+Joshua summoned all Israel, their elders, heads, judges, and officers, and said to them, I am old and advanced in years. 
+
+<sup>3</sup> 
+
+And you have seen all that the Lord your God has done to all these nations for your sake; for it is the Lord your God Who has fought for you. 
+
+<sup>4</sup> 
+
+Behold, I have allotted to you as an inheritance for your tribes those nations that remain, with all the nations I have cut off, from the Jordan to the Great Sea on the west. 
+
+<sup>5</sup> 
+
+The Lord your God will thrust them out from before you and drive them out of your sight, and you shall possess their land, as the Lord your God promised you. 
+
+<sup>6</sup> 
+
+So be very courageous and steadfast to keep and do all that is written in the Book of the Law of Moses, turning not aside from it to the right hand or the left, 
+
+<sup>7</sup> 
+
+That you may not mix with these nations that remain among you, or make mention of the names of their gods or swear by them or serve them or bow down to them. 
+
+<sup>8</sup> 
+
+But cling to the Lord your God as you have done to this day. 
+
+<sup>9</sup> 
+
+For the Lord has driven out from before you great and strong nations; and as for you, no man has been able to withstand you to this day. 
+
+<sup>10</sup> 
+
+One man of you shall put to flight a thousand, for it is the Lord your God Who fights for you, as He promised you. 
+
+<sup>11</sup> 
+
+Be very watchful of yourselves, therefore, to love the Lord your God. 
+
+<sup>12</sup> 
+
+For if you turn back and adhere to the remnant of these nations left among you and make marriages with them, you marrying their women and they yours, 
+
+<sup>13</sup> 
+
+Know with certainty that the Lord your God will not continue to drive these nations from before you; but they shall be a snare and trap to you, and a scourge in your sides and thorns in your eyes, until you perish from off this good land which the Lord your God has given you. 
+
+<sup>14</sup> 
+
+And behold, this day I am going the way of all the earth. Know in all your hearts and in all your souls that not one thing has failed of all the good things which the Lord your God promised concerning you. All have come to pass for you; not one thing of them has failed. 
+
+<sup>15</sup> 
+
+But just as all good things which the Lord promised you have come to you, so will the Lord carry out [His] every [warning of] evil upon you, until He has destroyed you from off this good land which the Lord your God has given you. 
+
+<sup>16</sup> 
+
+If you transgress the covenant of the Lord your God, which He commanded you, if you serve other gods and bow down to them, then the anger of the Lord will be kindled against you, and you shall perish quickly from off the good land He has given you.

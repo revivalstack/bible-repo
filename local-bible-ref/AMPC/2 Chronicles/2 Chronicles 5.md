@@ -1,0 +1,55 @@
+<sup>1</sup> 
+
+Thus all the work that Solomon did for the house of the Lord was finished. He brought in all the things that David his father had dedicated, and the silver, the gold, and all the vessels he put in the treasuries of the house of God. 
+
+<sup>2</sup> 
+
+Then Solomon assembled the elders of Israel and all the heads of the tribes, the chiefs of the fathers' houses of the Israelites, to Jerusalem to bring up the ark of the covenant of the Lord out of the City of David, which is Zion. 
+
+<sup>3</sup> 
+
+All the men of Israel gathered to the king at the feast in the seventh month. 
+
+<sup>4</sup> 
+
+And all the elders of Israel came, and the Levites took up the ark. 
+
+<sup>5</sup> 
+
+And the priests and Levites brought up the ark, the Tent of Meeting, and all the holy vessels that were in the Tent. 
+
+<sup>6</sup> 
+
+Also King Solomon and all the assembly of Israel who were gathered to him before the ark sacrificed sheep and oxen so numerous that they could not be counted or reported. 
+
+<sup>7</sup> 
+
+And the priests brought the ark of the covenant of the Lord to its place, to the sanctuary of the house, into the Holy of Holies, under the wings of the cherubim; 
+
+<sup>8</sup> 
+
+For the cherubim spread out their wings over the place of the ark, making a covering above the ark and its poles. 
+
+<sup>9</sup> 
+
+And they drew out the poles of the ark, so that the ends of the poles protruding from the ark were visible from the front of the Holy of Holies, but were not visible from without. It is there to this day. 
+
+<sup>10</sup> 
+
+There was nothing in the ark except the two tables [the Ten Commandments] which Moses put in it at Mount Horeb, when the Lord made a covenant with the Israelites when they came out of Egypt. 
+
+<sup>11</sup> 
+
+And when the priests had come out of the Holy Place--for all the priests present had sanctified themselves, separating themselves from everything that defiles, without regard to their divisions; 
+
+<sup>12</sup> 
+
+And all the Levites who were singers--all of those of Asaph, Heman, and Jeduthun, with their sons and kinsmen, arrayed in fine linen, having cymbals, harps, and lyres--stood at the east end of the altar, and with them 120 priests blowing trumpets; 
+
+<sup>13</sup> 
+
+And when the trumpeters and singers were joined in unison, making one sound to be heard in praising and thanking the Lord, and when they lifted up their voice with the trumpets and cymbals and other instruments for song and praised the Lord, saying, For He is good, for His mercy and loving-kindness endure forever, then the house of the Lord was filled with a cloud, 
+
+<sup>14</sup> 
+
+So that the priests could not stand to minister because of the cloud, for the glory of the Lord filled the house of God.

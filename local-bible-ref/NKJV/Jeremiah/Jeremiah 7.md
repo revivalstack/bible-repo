@@ -1,0 +1,101 @@
+<sup>1</sup> 
+The word that came to Jeremiah from the Lord, saying, 
+
+<sup>2</sup> 
+"Stand in the gate of the Lord's house, and proclaim there this word, and say, 'Hear the word of the Lord, all you of Judah who enter in at these gates to worship the Lord!' " 
+
+<sup>3</sup> 
+Thus says the Lord of hosts, the God of Israel: "Amend your ways and your doings, and I will cause you to dwell in this place. 
+
+<sup>4</sup> 
+Do not trust in these lying words, saying, 'The temple of the Lord, the temple of the Lord, the temple of the Lord are these.' 
+
+<sup>5</sup> 
+"For if you thoroughly amend your ways and your doings, if you thoroughly execute judgment between a man and his neighbor, 
+
+<sup>6</sup> 
+if you do not oppress the stranger, the fatherless, and the widow, and do not shed innocent blood in this place, or walk after other gods to your hurt, 
+
+<sup>7</sup> 
+then I will cause you to dwell in this place, in the land that I gave to your fathers forever and ever. 
+
+<sup>8</sup> 
+"Behold, you trust in lying words that cannot profit. 
+
+<sup>9</sup> 
+Will you steal, murder, commit adultery, swear falsely, burn incense to Baal, and walk after other gods whom you do not know, 
+
+<sup>10</sup> 
+and then come and stand before Me in this house which is called by My name, and say, 'We are delivered to do all these abominations'? 
+
+<sup>11</sup> 
+Has this house, which is called by My name, become a den of thieves in your eyes? Behold, I, even I, have seen it," says the Lord. 
+
+<sup>12</sup> 
+"But go now to My place which was in Shiloh, where I set My name at the first, and see what I did to it because of the wickedness of My people Israel. 
+
+<sup>13</sup> 
+And now, because you have done all these works," says the Lord, "and I spoke to you, rising up early and speaking, but you did not hear, and I called you, but you did not answer, 
+
+<sup>14</sup> 
+therefore I will do to the house which is called by My name, in which you trust, and to this place which I gave to you and your fathers, as I have done to Shiloh. 
+
+<sup>15</sup> 
+And I will cast you out of My sight, as I have cast out all your brethren--the whole posterity of Ephraim. 
+
+<sup>16</sup> 
+"Therefore do not pray for this people, nor lift up a cry or prayer for them, nor make intercession to Me; for I will not hear you. 
+
+<sup>17</sup> 
+Do you not see what they do in the cities of Judah and in the streets of Jerusalem? 
+
+<sup>18</sup> 
+The children gather wood, the fathers kindle the fire, and the women knead dough, to make cakes for the queen of heaven; and they pour out drink offerings to other gods, that they may provoke Me to anger. 
+
+<sup>19</sup> 
+Do they provoke Me to anger?" says the Lord. "Do they not provoke themselves, to the shame of their own faces?" 
+
+<sup>20</sup> 
+Therefore thus says the Lord God: "Behold, My anger and My fury will be poured out on this place--on man and on beast, on the trees of the field and on the fruit of the ground. And it will burn and not be quenched." 
+
+<sup>21</sup> 
+Thus says the Lord of hosts, the God of Israel: "Add your burnt offerings to your sacrifices and eat meat. 
+
+<sup>22</sup> 
+For I did not speak to your fathers, or command them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices. 
+
+<sup>23</sup> 
+But this is what I commanded them, saying, 'Obey My voice, and I will be your God, and you shall be My people. And walk in all the ways that I have commanded you, that it may be well with you.' 
+
+<sup>24</sup> 
+Yet they did not obey or incline their ear, but followed the counsels and the dictates of their evil hearts, and went backward and not forward. 
+
+<sup>25</sup> 
+Since the day that your fathers came out of the land of Egypt until this day, I have even sent to you all My servants the prophets, daily rising up early and sending them. 
+
+<sup>26</sup> 
+Yet they did not obey Me or incline their ear, but stiffened their neck. They did worse than their fathers. 
+
+<sup>27</sup> 
+"Therefore you shall speak all these words to them, but they will not obey you. You shall also call to them, but they will not answer you.
+
+<sup>28</sup> 
+"So you shall say to them, 'This is a nation that does not obey the voice of the Lord their God nor receive correction. Truth has perished and has been cut off from their mouth. 
+
+<sup>29</sup> 
+Cut off your hair and cast it away, and take up a lamentation on the desolate heights; for the Lord has rejected and forsaken the generation of His wrath.' 
+
+<sup>30</sup> 
+For the children of Judah have done evil in My sight," says the Lord. "They have set their abominations in the house which is called by My name, to pollute it. 
+
+<sup>31</sup> 
+And they have built the high places of Tophet, which is in the Valley of the Son of Hinnom, to burn their sons and their daughters in the fire, which I did not command, nor did it come into My heart. 
+
+<sup>32</sup> 
+"Therefore behold, the days are coming," says the Lord, "when it will no more be called Tophet, or the Valley of the Son of Hinnom, but the Valley of Slaughter; for they will bury in Tophet until there is no room. 
+
+<sup>33</sup> 
+The corpses of this people will be food for the birds of the heaven and for the beasts of the earth. And no one will frighten them away. 
+
+<sup>34</sup> 
+Then I will cause to cease from the cities of Judah and from the streets of Jerusalem the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride. For the land shall be desolate.

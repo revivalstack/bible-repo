@@ -1,0 +1,83 @@
+<sup>1</sup> 
+
+David assembled at Jerusalem all the leaders of Israel and of the tribes, the officers of the divisions that served the king in courses, and those over thousands and hundreds, and the stewards over all the property and livestock of the king and his sons, with the palace officers, the mighty men, and all the mighty warriors. 
+
+<sup>2</sup> 
+
+Then David the king rose to his feet and said, Hear me, my brethren and my people. I myself intended to build a house of rest for the ark of the covenant of the Lord, as a footstool for our God, and I prepared materials for the building. 
+
+<sup>3</sup> 
+
+But God said to me, You shall not build a house for My Name [and Presence], because you have been a man of war and have shed blood. 
+
+<sup>4</sup> 
+
+However, the Lord, the God of Israel, chose me before all my father's house to be king over Israel forever. For He chose Judah to be the ruler; and of the house of Judah he chose the house of my father; and among the sons of my father He was pleased to make me king over all Israel; 
+
+<sup>5</sup> 
+
+And of all my sons, for the Lord has given me many sons, He has chosen Solomon my son to sit upon the throne of the kingdom of the Lord over Israel. 
+
+<sup>6</sup> 
+
+And He said to me, Solomon your son shall build My house and My courts, for I have chosen him to be My son, and I will be his father. 
+
+<sup>7</sup> 
+
+I will establish his kingdom forever if he loyally and continuously obeys My commandments and My ordinances, as he does today. 
+
+<sup>8</sup> 
+
+Now therefore, in the sight of all Israel, the assembly of the Lord, and in the hearing of our God, keep and seek [to be familiar with] all the commandments of the Lord your God, that you may possess this good land and leave it as an inheritance for your children after you forever. 
+
+<sup>9</sup> 
+
+And you, Solomon my son, know the God of your father [have personal knowledge of Him, be acquainted with, and understand Him; appreciate, heed, and cherish Him] and serve Him with a blameless heart and a willing mind. For the Lord searches all hearts and minds and understands all the wanderings of the thoughts. If you seek Him [inquiring for and of Him and requiring Him as your first and vital necessity] you will find Him; but if you forsake Him, He will cast you off forever! 
+
+<sup>10</sup> 
+
+Take heed now, for the Lord has chosen you to build a house for the sanctuary. Be strong and do it! 
+
+<sup>11</sup> 
+
+Then David gave Solomon his son the plan of the vestibule of the temple, its houses, its treasuries, its upper chambers, its inner rooms, and of the place for the [ark and its] mercy seat; 
+
+<sup>12</sup> 
+
+And the plan of all that he had in mind [by the Spirit] for the courts of the house of the Lord, all the surrounding chambers, the treasuries of the house of God, and the treasuries for the dedicated gifts; 
+
+<sup>13</sup> 
+
+The plan for the divisions of the priests and the Levites, for all the work of the service in the house of the Lord; for all the vessels for service in the house of the Lord: 
+
+<sup>14</sup> 
+
+The weight of gold and silver for all the gold and silver articles of every kind of service-- 
+
+<sup>15</sup> 
+
+The weight of the golden lampstands and their lamps, the weight of gold or silver for each lampstand and its lamps, according to the use of each lampstand; 
+
+<sup>16</sup> 
+
+The gold by weight for each table of showbread, and the silver for the tables of silver; 
+
+<sup>17</sup> 
+
+Also pure gold for the forks, basins, and cups; for the golden bowls by weight of each; for the silver bowls by weight of each; 
+
+<sup>18</sup> 
+
+For the incense altar refined gold by weight, and gold for the plan of the chariot of the cherubim that spread their wings and covered the ark of the Lord's covenant. 
+
+<sup>19</sup> 
+
+All this the Lord made me understand by the writing by His hand upon me, all the work to be done according to the plan. 
+
+<sup>20</sup> 
+
+Also David told Solomon his son, Be strong and courageous, and do it. Fear not, be not dismayed, for the Lord God, my God, is with you. He will not fail or forsake you until you have finished all the work for the service of the house of the Lord. 
+
+<sup>21</sup> 
+
+And see, [you have] the divisions of the priests and Levites for all the service of God's house, and with you in all the kinds of work will be every willing, skillful man for any kind of service. Also the officers and all the people will be wholly at your command.

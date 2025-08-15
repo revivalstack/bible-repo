@@ -1,0 +1,71 @@
+<sup>1</sup> 
+
+Moab rebelled against Israel after the death of Ahab. 
+
+<sup>2</sup> 
+
+[King] Ahaziah fell down through a lattice in his upper chamber in Samaria and lay sick. He sent messengers, saying, Go, ask Baal-zebub, the god of [Philistine] Ekron, if I shall recover from this illness. 
+
+<sup>3</sup> 
+
+But the angel of the Lord said to Elijah the Tishbite, Arise, go up to meet the messengers of the king in Samaria and say to them, Is it because there is no God in Israel that you are going to inquire of Baal-zebub, the god of Ekron? 
+
+<sup>4</sup> 
+
+Therefore the Lord says: You [Ahaziah] shall not leave the bed on which you lie, but shall surely die. And Elijah departed. 
+
+<sup>5</sup> 
+
+When the messengers returned to Ahaziah, he said, Why have you turned back? 
+
+<sup>6</sup> 
+
+They replied, A man came up to meet us who said, Go back to the king who sent you and tell him, Thus says the Lord: Is there no God in Israel that you send to inquire of Baal-zebub, the god of Ekron? Therefore you shall not leave the bed on which you lie, but shall surely die. 
+
+<sup>7</sup> 
+
+The king asked, What was the man like who came to meet you saying these things? 
+
+<sup>8</sup> 
+
+They answered, He was a hairy man with a girdle of leather about his loins. And he said, It is Elijah the Tishbite. 
+
+<sup>9</sup> 
+
+Then the king sent to Elijah a captain of fifty men with his fifty [to seize him]. He found Elijah sitting on a hilltop and said, Man of God, the king says, Come down. 
+
+<sup>10</sup> 
+
+Elijah said to the captain of fifty, If I am a man of God, then let fire come down from heaven and consume you and your fifty. And fire fell from heaven and consumed him and his fifty. 
+
+<sup>11</sup> 
+
+Again King [Ahaziah] sent to him another captain of fifty with his fifty. And he said to Elijah, Man of God, the king has said, Come down quickly! 
+
+<sup>12</sup> 
+
+And Elijah answered, If I am a man of God, let fire come down from heaven and consume you and your fifty. And the fire of God came down from heaven and consumed him and his fifty. 
+
+<sup>13</sup> 
+
+Ahaziah sent again a captain of a third fifty with his fifty. And the third captain of fifty went up and fell on his knees before Elijah and besought him and said to him, O man of God, I pray you, let my life and the lives of these fifty, your servants, be precious in your sight. 
+
+<sup>14</sup> 
+
+Behold, fire came down from heaven and burned up the two captains of the former fifties with their fifties. Therefore let my life now be precious in your sight. 
+
+<sup>15</sup> 
+
+The angel of the Lord said to Elijah, Go down with him; do not be afraid of him. So he arose and went with him to the king. 
+
+<sup>16</sup> 
+
+Elijah said to [King] Ahaziah, Thus says the Lord: Since you have sent messengers to inquire of Baal-zebub, god of Ekron, is it because there is no God in Israel of Whom to inquire His word? Therefore you shall not leave the bed on which you lie, but shall surely die. 
+
+<sup>17</sup> 
+
+So Ahaziah died according to the word of the Lord which Elijah had spoken. Joram [also a son of Ahab] reigned in Israel in his stead in the second year of Jehoram son of Jehoshaphat king of Judah, because Ahaziah had no son [but his brother]. 
+
+<sup>18</sup> 
+
+Now the rest of the acts of Ahaziah, are they not written in the Book of the Chronicles of the Kings of Israel?

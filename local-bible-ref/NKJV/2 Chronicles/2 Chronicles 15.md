@@ -1,0 +1,56 @@
+<sup>1</sup> 
+Now the Spirit of God came upon Azariah the son of Oded. 
+
+<sup>2</sup> 
+And he went out to meet Asa, and said to him: "Hear me, Asa, and all Judah and Benjamin. The Lord is with you while you are with Him. If you seek Him, He will be found by you; but if you forsake Him, He will forsake you. 
+
+<sup>3</sup> 
+For a long time Israel has been without the true God, without a teaching priest, and without law; 
+
+<sup>4</sup> 
+but when in their trouble they turned to the Lord God of Israel, and sought Him, He was found by them. 
+
+<sup>5</sup> 
+And in those times there was no peace to the one who went out, nor to the one who came in, but great turmoil was on all the inhabitants of the lands. 
+
+<sup>6</sup> 
+So nation was destroyed by nation, and city by city, for God troubled them with every adversity. 
+
+<sup>7</sup> 
+But you, be strong and do not let your hands be weak, for your work shall be rewarded!" 
+
+<sup>8</sup> 
+And when Asa heard these words and the prophecy of Oded the prophet, he took courage, and removed the abominable idols from all the land of Judah and Benjamin and from the cities which he had taken in the mountains of Ephraim; and he restored the altar of the Lord that was before the vestibule of the Lord. 
+
+<sup>9</sup> 
+Then he gathered all Judah and Benjamin, and those who dwelt with them from Ephraim, Manasseh, and Simeon, for they came over to him in great numbers from Israel when they saw that the Lord his God was with him. 
+
+<sup>10</sup> 
+So they gathered together at Jerusalem in the third month, in the fifteenth year of the reign of Asa. 
+
+<sup>11</sup> 
+And they offered to the Lord at that time seven hundred bulls and seven thousand sheep from the spoil they had brought. 
+
+<sup>12</sup> 
+Then they entered into a covenant to seek the Lord God of their fathers with all their heart and with all their soul; 
+
+<sup>13</sup> 
+and whoever would not seek the Lord God of Israel was to be put to death, whether small or great, whether man or woman. 
+
+<sup>14</sup> 
+Then they took an oath before the Lord with a loud voice, with shouting and trumpets and rams' horns. 
+
+<sup>15</sup> 
+And all Judah rejoiced at the oath, for they had sworn with all their heart and sought Him with all their soul; and He was found by them, and the Lord gave them rest all around. 
+
+<sup>16</sup> 
+Also he removed Maachah, the mother of Asa the king, from being queen mother, because she had made an obscene image of Asherah; and Asa cut down her obscene image, then crushed and burned it by the Brook Kidron. 
+
+<sup>17</sup> 
+But the high places were not removed from Israel. Nevertheless the heart of Asa was loyal all his days. 
+
+<sup>18</sup> 
+He also brought into the house of God the things that his father had dedicated and that he himself had dedicated: silver and gold and utensils. 
+
+<sup>19</sup> 
+And there was no war until the thirty-fifth year of the reign of Asa.

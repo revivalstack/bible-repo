@@ -1,0 +1,68 @@
+<sup>1</sup> 
+Now some of the elders of Israel came to me and sat before me. 
+
+<sup>2</sup> 
+And the word of the Lord came to me, saying, 
+
+<sup>3</sup> 
+"Son of man, these men have set up their idols in their hearts, and put before them that which causes them to stumble into iniquity. Should I let Myself be inquired of at all by them? 
+
+<sup>4</sup> 
+"Therefore speak to them, and say to them, 'Thus says the Lord God: "Everyone of the house of Israel who sets up his idols in his heart, and puts before him what causes him to stumble into iniquity, and then comes to the prophet, I the Lord will answer him who comes, according to the multitude of his idols, 
+
+<sup>5</sup> 
+that I may seize the house of Israel by their heart, because they are all estranged from Me by their idols." ' 
+
+<sup>6</sup> 
+"Therefore say to the house of Israel, 'Thus says the Lord God: "Repent, turn away from your idols, and turn your faces away from all your abominations. 
+
+<sup>7</sup> 
+For anyone of the house of Israel, or of the strangers who dwell in Israel, who separates himself from Me and sets up his idols in his heart and puts before him what causes him to stumble into iniquity, then comes to a prophet to inquire of him concerning Me, I the Lord will answer him by Myself. 
+
+<sup>8</sup> 
+I will set My face against that man and make him a sign and a proverb, and I will cut him off from the midst of My people. Then you shall know that I am the Lord. 
+
+<sup>9</sup> 
+"And if the prophet is induced to speak anything, I the Lord have induced that prophet, and I will stretch out My hand against him and destroy him from among My people Israel. 
+
+<sup>10</sup> 
+And they shall bear their iniquity; the punishment of the prophet shall be the same as the punishment of the one who inquired, 
+
+<sup>11</sup> 
+that the house of Israel may no longer stray from Me, nor be profaned anymore with all their transgressions, but that they may be My people and I may be their God," says the Lord God.' " 
+
+<sup>12</sup> 
+The word of the Lord came again to me, saying: 
+
+<sup>13</sup> 
+"Son of man, when a land sins against Me by persistent unfaithfulness, I will stretch out My hand against it; I will cut off its supply of bread, send famine on it, and cut off man and beast from it. 
+
+<sup>14</sup> 
+Even if these three men, Noah, Daniel, and Job, were in it, they would deliver only themselves by their righteousness," says the Lord God. 
+
+<sup>15</sup> 
+"If I cause wild beasts to pass through the land, and they empty it, and make it so desolate that no man may pass through because of the beasts, 
+
+<sup>16</sup> 
+even though these three men were in it, as I live," says the Lord God, "they would deliver neither sons nor daughters; only they would be delivered, and the land would be desolate. 
+
+<sup>17</sup> 
+"Or if I bring a sword on that land, and say, 'Sword, go through the land,' and I cut off man and beast from it, 
+
+<sup>18</sup> 
+even though these three men were in it, as I live," says the Lord God, "they would deliver neither sons nor daughters, but only they themselves would be delivered. 
+
+<sup>19</sup> 
+"Or if I send a pestilence into that land and pour out My fury on it in blood, and cut off from it man and beast, 
+
+<sup>20</sup> 
+even though Noah, Daniel, and Job were in it, as I live," says the Lord God, "they would deliver neither son nor daughter; they would deliver only themselves by their righteousness." 
+
+<sup>21</sup> 
+For thus says the Lord God: "How much more it shall be when I send My four severe judgments on Jerusalem--the sword and famine and wild beasts and pestilence--to cut off man and beast from it? 
+
+<sup>22</sup> 
+Yet behold, there shall be left in it a remnant who will be brought out, both sons and daughters; surely they will come out to you, and you will see their ways and their doings. Then you will be comforted concerning the disaster that I have brought upon Jerusalem, all that I have brought upon it. 
+
+<sup>23</sup> 
+And they will comfort you, when you see their ways and their doings; and you shall know that I have done nothing without cause that I have done in it," says the Lord God.

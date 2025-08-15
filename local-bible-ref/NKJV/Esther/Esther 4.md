@@ -1,0 +1,50 @@
+<sup>1</sup> 
+When Mordecai learned all that had happened, he tore his clothes and put on sackcloth and ashes, and went out into the midst of the city. He cried out with a loud and bitter cry. 
+
+<sup>2</sup> 
+He went as far as the front of the king's gate, for no one might enter the king's gate clothed with sackcloth. 
+
+<sup>3</sup> 
+And in every province where the king's command and decree arrived, there was great mourning among the Jews, with fasting, weeping, and wailing; and many lay in sackcloth and ashes. 
+
+<sup>4</sup> 
+So Esther's maids and eunuchs came and told her, and the queen was deeply distressed. Then she sent garments to clothe Mordecai and take his sackcloth away from him, but he would not accept them. 
+
+<sup>5</sup> 
+Then Esther called Hathach, one of the king's eunuchs whom he had appointed to attend her, and she gave him a command concerning Mordecai, to learn what and why this was. 
+
+<sup>6</sup> 
+So Hathach went out to Mordecai in the city square that was in front of the king's gate. 
+
+<sup>7</sup> 
+And Mordecai told him all that had happened to him, and the sum of money that Haman had promised to pay into the king's treasuries to destroy the Jews. 
+
+<sup>8</sup> 
+He also gave him a copy of the written decree for their destruction, which was given at Shushan, that he might show it to Esther and explain it to her, and that he might command her to go in to the king to make supplication to him and plead before him for her people. 
+
+<sup>9</sup> 
+So Hathach returned and told Esther the words of Mordecai. 
+
+<sup>10</sup> 
+Then Esther spoke to Hathach, and gave him a command for Mordecai: 
+
+<sup>11</sup> 
+"All the king's servants and the people of the king's provinces know that any man or woman who goes into the inner court to the king, who has not been called, he has but one law: put all to death, except the one to whom the king holds out the golden scepter, that he may live. Yet I myself have not been called to go in to the king these thirty days." 
+
+<sup>12</sup> 
+So they told Mordecai Esther's words. 
+
+<sup>13</sup> 
+And Mordecai told them to answer Esther: "Do not think in your heart that you will escape in the king's palace any more than all the other Jews. 
+
+<sup>14</sup> 
+For if you remain completely silent at this time, relief and deliverance will arise for the Jews from another place, but you and your father's house will perish. Yet who knows whether you have come to the kingdom for such a time as this?" 
+
+<sup>15</sup> 
+Then Esther told them to reply to Mordecai: 
+
+<sup>16</sup> 
+"Go, gather all the Jews who are present in Shushan, and fast for me; neither eat nor drink for three days, night or day. My maids and I will fast likewise. And so I will go to the king, which is against the law; and if I perish, I perish!" 
+
+<sup>17</sup> 
+So Mordecai went his way and did according to all that Esther commanded him.

@@ -1,0 +1,83 @@
+<sup>1</sup> 
+
+Simon Peter, a servant and apostle (special messenger) of Jesus Christ, to those who have received (obtained an equal privilege of) like precious faith with ourselves in and through the righteousness of our God and Savior Jesus Christ: 
+
+<sup>2</sup> 
+
+May grace (God's favor) and peace (which is perfect well-being, all necessary good, all spiritual prosperity, and freedom from fears and agitating passions and moral conflicts) be multiplied to you in [the full, personal, precise, and correct] knowledge of God and of Jesus our Lord. 
+
+<sup>3</sup> 
+
+For His divine power has bestowed upon us all things that [are requisite and suited] to life and godliness, through the [full, personal] knowledge of Him Who called us by and to His own glory and excellence (virtue). 
+
+<sup>4</sup> 
+
+By means of these He has bestowed on us His precious and exceedingly great promises, so that through them you may escape [by flight] from the moral decay (rottenness and corruption) that is in the world because of covetousness (lust and greed), and become sharers (partakers) of the divine nature. 
+
+<sup>5</sup> 
+
+For this very reason, adding your diligence [to the divine promises], employ every effort in exercising your faith to develop virtue (excellence, resolution, Christian energy), and in [exercising] virtue [develop] knowledge (intelligence), 
+
+<sup>6</sup> 
+
+And in [exercising] knowledge [develop] self-control, and in [exercising] self-control [develop] steadfastness (patience, endurance), and in [exercising] steadfastness [develop] godliness (piety), 
+
+<sup>7</sup> 
+
+And in [exercising] godliness [develop] brotherly affection, and in [exercising] brotherly affection [develop] Christian love. 
+
+<sup>8</sup> 
+
+For as these qualities are yours and increasingly abound in you, they will keep [you] from being idle or unfruitful unto the [full personal] knowledge of our Lord Jesus Christ (the Messiah, the Anointed One). 
+
+<sup>9</sup> 
+
+For whoever lacks these qualities is blind, [spiritually] shortsighted, seeing only what is near to him, and has become oblivious [to the fact] that he was cleansed from his old sins. 
+
+<sup>10</sup> 
+
+Because of this, brethren, be all the more solicitous and eager to make sure (to ratify, to strengthen, to make steadfast) your calling and election; for if you do this, you will never stumble or fall. 
+
+<sup>11</sup> 
+
+Thus there will be richly and abundantly provided for you entry into the eternal kingdom of our Lord and Savior Jesus Christ. 
+
+<sup>12</sup> 
+
+So I intend always to remind you about these things, although indeed you know them and are firm in the truth that [you] now [hold]. 
+
+<sup>13</sup> 
+
+I think it right, as long as I am in this tabernacle (tent, body), to stir you up by way of remembrance, 
+
+<sup>14</sup> 
+
+Since I know that the laying aside of this body of mine will come speedily, as our Lord Jesus Christ made clear to me. 
+
+<sup>15</sup> 
+
+Moreover, I will diligently endeavor [to see to it] that [even] after my departure (decease) you may be able at all times to call these things to mind. 
+
+<sup>16</sup> 
+
+For we were not following cleverly devised stories when we made known to you the power and coming of our Lord Jesus Christ (the Messiah), but we were eyewitnesses of His majesty (grandeur, authority of sovereign power). 
+
+<sup>17</sup> 
+
+For when He was invested with honor and glory from God the Father and a voice was borne to Him by the [splendid] Majestic Glory [in the bright cloud that overshadowed Him, saying], This is My beloved Son in Whom I am well pleased and delight, 
+
+<sup>18</sup> 
+
+We [actually] heard this voice borne out of heaven, for we were together with Him on the holy mountain. 
+
+<sup>19</sup> 
+
+And we have the prophetic word [made] firmer still. You will do well to pay close attention to it as to a lamp shining in a dismal (squalid and dark) place, until the day breaks through [the gloom] and the Morning Star rises (comes into being) in your hearts. 
+
+<sup>20</sup> 
+
+[Yet] first [you must] understand this, that no prophecy of Scripture is [a matter] of any personal or private or special interpretation (loosening, solving). 
+
+<sup>21</sup> 
+
+For no prophecy ever originated because some man willed it [to do so--it never came by human impulse], but men spoke from God who were borne along (moved and impelled) by the Holy Spirit.

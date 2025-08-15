@@ -1,0 +1,63 @@
+<sup>1</sup> 
+
+Thus says the Lord: For three transgressions of Moab [descendants of Lot] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because he burned the bones of the king of Edom [Esau's descendant] into lime. 
+
+<sup>2</sup> 
+
+So I will send a fire upon Moab and it shall devour the strongholds of Kerioth, and Moab shall die amid uproar, shouting, and the sound of the trumpet. 
+
+<sup>3</sup> 
+
+And I will cut off the ruler from its midst and will slay all its princes with him, says the Lord. 
+
+<sup>4</sup> 
+
+Thus says the Lord: For three transgressions of Judah and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they have despised and rejected the law of the Lord and have not kept His commandments, but their lies, after which their fathers have walked, caused them to err and go astray. 
+
+<sup>5</sup> 
+
+So I will send a fire upon Judah and it shall devour the strongholds of Jerusalem. 
+
+<sup>6</sup> 
+
+Thus says the Lord: For three transgressions of Israel and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they have sold the [strictly] just and uncompromisingly righteous for silver and the needy for a pair of sandals; 
+
+<sup>7</sup> 
+
+They pant after [the sight of] the poor [reduced to such misery that they will be throwing] dust of the earth on their heads [in token of their grief]; they defraud and turn aside the humble [who are too meek to defend themselves]; and a man and his father will have sexual relations with the same maiden, so that My holy name is profaned. 
+
+<sup>8</sup> 
+
+And they lay themselves down beside every [pagan] altar upon clothes they have taken in pledge [for indebtedness], and in the house of their God [in daring contempt of Him] they frivolously drink the wine which has been exacted from those [unjustly] fined. 
+
+<sup>9</sup> 
+
+Yet I destroyed the Amorite before them, whose height was like the height of the cedars and he was strong as the oaks; yet I destroyed his fruit from above and his roots from beneath. 
+
+<sup>10</sup> 
+
+Also I brought you up out of the land of Egypt and led you forty years through the wilderness to possess the land of the Amorite. 
+
+<sup>11</sup> 
+
+And I raised up some of your sons for prophets and some of your young men for dedicated ones [Nazirites]. Is this not true, O you children of Israel? says the Lord. 
+
+<sup>12</sup> 
+
+But you gave the dedicated ones [the Nazirites] wine to drink and commanded the prophets, saying, Prophesy not. 
+
+<sup>13</sup> 
+
+Behold, I am pressed under you and I will press you down in your place as a cart presses that is full of sheaves. 
+
+<sup>14</sup> 
+
+And flight shall be lost to the swift and refuge shall fail him; the strong shall not retain and confirm his strength, neither shall the mighty deliver himself. 
+
+<sup>15</sup> 
+
+Neither shall he stand who handles the bow, and he who is swift of foot shall not deliver himself; neither shall he who rides the horse deliver his life. 
+
+<sup>16</sup> 
+
+And he who is courageous among the mighty shall flee away naked on that day, says the Lord.

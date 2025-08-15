@@ -1,0 +1,101 @@
+<sup>1</sup> 
+Now the Lord spoke to Moses after the death of the two sons of Aaron, when they offered profane fire before the Lord, and died; 
+
+<sup>2</sup> 
+and the Lord said to Moses: "Tell Aaron your brother not to come at just any time into the Holy Place inside the veil, before the mercy seat which is on the ark, lest he die; for I will appear in the cloud above the mercy seat. 
+
+<sup>3</sup> 
+"Thus Aaron shall come into the Holy Place: with the blood of a young bull as a sin offering, and of a ram as a burnt offering. 
+
+<sup>4</sup> 
+He shall put the holy linen tunic and the linen trousers on his body; he shall be girded with a linen sash, and with the linen turban he shall be attired. These are holy garments. Therefore he shall wash his body in water, and put them on. 
+
+<sup>5</sup> 
+And he shall take from the congregation of the children of Israel two kids of the goats as a sin offering, and one ram as a burnt offering. 
+
+<sup>6</sup> 
+"Aaron shall offer the bull as a sin offering, which is for himself, and make atonement for himself and for his house. 
+
+<sup>7</sup> 
+He shall take the two goats and present them before the Lord at the door of the tabernacle of meeting. 
+
+<sup>8</sup> 
+Then Aaron shall cast lots for the two goats: one lot for the Lord and the other lot for the scapegoat. 
+
+<sup>9</sup> 
+And Aaron shall bring the goat on which the Lord's lot fell, and offer it as a sin offering. 
+
+<sup>10</sup> 
+But the goat on which the lot fell to be the scapegoat shall be presented alive before the Lord, to make atonement upon it, and to let it go as the scapegoat into the wilderness. 
+
+<sup>11</sup> 
+"And Aaron shall bring the bull of the sin offering, which is for himself, and make atonement for himself and for his house, and shall kill the bull as the sin offering which is for himself. 
+
+<sup>12</sup> 
+Then he shall take a censer full of burning coals of fire from the altar before the Lord, with his hands full of sweet incense beaten fine, and bring it inside the veil. 
+
+<sup>13</sup> 
+And he shall put the incense on the fire before the Lord, that the cloud of incense may cover the mercy seat that is on the Testimony, lest he die. 
+
+<sup>14</sup> 
+He shall take some of the blood of the bull and sprinkle it with his finger on the mercy seat on the east side; and before the mercy seat he shall sprinkle some of the blood with his finger seven times. 
+
+<sup>15</sup> 
+"Then he shall kill the goat of the sin offering, which is for the people, bring its blood inside the veil, do with that blood as he did with the blood of the bull, and sprinkle it on the mercy seat and before the mercy seat. 
+
+<sup>16</sup> 
+So he shall make atonement for the Holy Place, because of the uncleanness of the children of Israel, and because of their transgressions, for all their sins; and so he shall do for the tabernacle of meeting which remains among them in the midst of their uncleanness. 
+
+<sup>17</sup> 
+There shall be no man in the tabernacle of meeting when he goes in to make atonement in the Holy Place, until he comes out, that he may make atonement for himself, for his household, and for all the assembly of Israel. 
+
+<sup>18</sup> 
+And he shall go out to the altar that is before the Lord, and make atonement for it, and shall take some of the blood of the bull and some of the blood of the goat, and put it on the horns of the altar all around. 
+
+<sup>19</sup> 
+Then he shall sprinkle some of the blood on it with his finger seven times, cleanse it, and consecrate it from the uncleanness of the children of Israel. 
+
+<sup>20</sup> 
+"And when he has made an end of atoning for the Holy Place, the tabernacle of meeting, and the altar, he shall bring the live goat. 
+
+<sup>21</sup> 
+Aaron shall lay both his hands on the head of the live goat, confess over it all the iniquities of the children of Israel, and all their transgressions, concerning all their sins, putting them on the head of the goat, and shall send it away into the wilderness by the hand of a suitable man. 
+
+<sup>22</sup> 
+The goat shall bear on itself all their iniquities to an uninhabited land; and he shall release the goat in the wilderness. 
+
+<sup>23</sup> 
+"Then Aaron shall come into the tabernacle of meeting, shall take off the linen garments which he put on when he went into the Holy Place, and shall leave them there. 
+
+<sup>24</sup> 
+And he shall wash his body with water in a holy place, put on his garments, come out and offer his burnt offering and the burnt offering of the people, and make atonement for himself and for the people. 
+
+<sup>25</sup> 
+The fat of the sin offering he shall burn on the altar. 
+
+<sup>26</sup> 
+And he who released the goat as the scapegoat shall wash his clothes and bathe his body in water, and afterward he may come into the camp. 
+
+<sup>27</sup> 
+The bull for the sin offering and the goat for the sin offering, whose blood was brought in to make atonement in the Holy Place, shall be carried outside the camp. And they shall burn in the fire their skins, their flesh, and their offal. 
+
+<sup>28</sup> 
+Then he who burns them shall wash his clothes and bathe his body in water, and afterward he may come into the camp. 
+
+<sup>29</sup> 
+"This shall be a statute forever for you: In the seventh month, on the tenth day of the month, you shall afflict your souls, and do no work at all, whether a native of your own country or a stranger who dwells among you. 
+
+<sup>30</sup> 
+For on that day the priest shall make atonement for you, to cleanse you, that you may be clean from all your sins before the Lord. 
+
+<sup>31</sup> 
+It is a sabbath of solemn rest for you, and you shall afflict your souls. It is a statute forever. 
+
+<sup>32</sup> 
+And the priest, who is anointed and consecrated to minister as priest in his father's place, shall make atonement, and put on the linen clothes, the holy garments; 
+
+<sup>33</sup> 
+then he shall make atonement for the Holy Sanctuary, and he shall make atonement for the tabernacle of meeting and for the altar, and he shall make atonement for the priests and for all the people of the assembly. 
+
+<sup>34</sup> 
+This shall be an everlasting statute for you, to make atonement for the children of Israel, for all their sins, once a year." And he did as the Lord commanded Moses.

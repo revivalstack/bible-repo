@@ -1,0 +1,32 @@
+<sup>1</sup> 
+Thus says the Lord: "Where is the certificate of your mother's divorce, Whom I have put away? Or which of My creditors is it to whom I have sold you? For your iniquities you have sold yourselves, And for your transgressions your mother has been put away. 
+
+<sup>2</sup> 
+Why, when I came, was there no man? Why, when I called, was there none to answer? Is My hand shortened at all that it cannot redeem? Or have I no power to deliver? Indeed with My rebuke I dry up the sea, I make the rivers a wilderness; Their fish stink because there is no water, And die of thirst. 
+
+<sup>3</sup> 
+I clothe the heavens with blackness, And I make sackcloth their covering." 
+
+<sup>4</sup> 
+"The Lord God has given Me The tongue of the learned, That I should know how to speak A word in season to him who is weary. He awakens Me morning by morning, He awakens My ear To hear as the learned. 
+
+<sup>5</sup> 
+The Lord God has opened My ear; And I was not rebellious, Nor did I turn away. 
+
+<sup>6</sup> 
+I gave My back to those who struck Me, And My cheeks to those who plucked out the beard; I did not hide My face from shame and spitting. 
+
+<sup>7</sup> 
+"For the Lord God will help Me; Therefore I will not be disgraced; Therefore I have set My face like a flint, And I know that I will not be ashamed. 
+
+<sup>8</sup> 
+He is near who justifies Me; Who will contend with Me? Let us stand together. Who is My adversary? Let him come near Me. 
+
+<sup>9</sup> 
+Surely the Lord God will help Me; Who is he who will condemn Me? Indeed they will all grow old like a garment; The moth will eat them up. 
+
+<sup>10</sup> 
+"Who among you fears the Lord? Who obeys the voice of His Servant? Who walks in darkness And has no light? Let him trust in the name of the Lord And rely upon his God. 
+
+<sup>11</sup> 
+Look, all you who kindle a fire, Who encircle yourselves with sparks: Walk in the light of your fire and in the sparks you have kindled-- This you shall have from My hand: You shall lie down in torment.

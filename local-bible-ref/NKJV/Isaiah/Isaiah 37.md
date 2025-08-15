@@ -1,0 +1,113 @@
+<sup>1</sup> 
+And so it was, when King Hezekiah heard it, that he tore his clothes, covered himself with sackcloth, and went into the house of the Lord. 
+
+<sup>2</sup> 
+Then he sent Eliakim, who was over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz. 
+
+<sup>3</sup> 
+And they said to him, "Thus says Hezekiah: 'This day is a day of trouble and rebuke and blasphemy; for the children have come to birth, but there is no strength to bring them forth. 
+
+<sup>4</sup> 
+It may be that the Lord your God will hear the words of the Rabshakeh, whom his master the king of Assyria has sent to reproach the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up your prayer for the remnant that is left.' " 
+
+<sup>5</sup> 
+So the servants of King Hezekiah came to Isaiah. 
+
+<sup>6</sup> 
+And Isaiah said to them, "Thus you shall say to your master, 'Thus says the Lord: "Do not be afraid of the words which you have heard, with which the servants of the king of Assyria have blasphemed Me. 
+
+<sup>7</sup> 
+Surely I will send a spirit upon him, and he shall hear a rumor and return to his own land; and I will cause him to fall by the sword in his own land." ' " 
+
+<sup>8</sup> 
+Then the Rabshakeh returned, and found the king of Assyria warring against Libnah, for he heard that he had departed from Lachish. 
+
+<sup>9</sup> 
+And the king heard concerning Tirhakah king of Ethiopia, "He has come out to make war with you." So when he heard it, he sent messengers to Hezekiah, saying, 
+
+<sup>10</sup> 
+"Thus you shall speak to Hezekiah king of Judah, saying: 'Do not let your God in whom you trust deceive you, saying, "Jerusalem shall not be given into the hand of the king of Assyria." 
+
+<sup>11</sup> 
+Look! You have heard what the kings of Assyria have done to all lands by utterly destroying them; and shall you be delivered? 
+
+<sup>12</sup> 
+Have the gods of the nations delivered those whom my fathers have destroyed, Gozan and Haran and Rezeph, and the people of Eden who were in Telassar? 
+
+<sup>13</sup> 
+Where is the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, Hena, and Ivah?' " 
+
+<sup>14</sup> 
+And Hezekiah received the letter from the hand of the messengers, and read it; and Hezekiah went up to the house of the Lord, and spread it before the Lord. 
+
+<sup>15</sup> 
+Then Hezekiah prayed to the Lord, saying: 
+
+<sup>16</sup> 
+"O Lord of hosts, God of Israel, the One who dwells between the cherubim, You are God, You alone, of all the kingdoms of the earth. You have made heaven and earth. 
+
+<sup>17</sup> 
+Incline Your ear, O Lord, and hear; open Your eyes, O Lord, and see; and hear all the words of Sennacherib, which he has sent to reproach the living God. 
+
+<sup>18</sup> 
+Truly, Lord, the kings of Assyria have laid waste all the nations and their lands, 
+
+<sup>19</sup> 
+and have cast their gods into the fire; for they were not gods, but the work of men's hands--wood and stone. Therefore they destroyed them. 
+
+<sup>20</sup> 
+Now therefore, O Lord our God, save us from his hand, that all the kingdoms of the earth may know that You are the Lord, You alone." 
+
+<sup>21</sup> 
+Then Isaiah the son of Amoz sent to Hezekiah, saying, "Thus says the Lord God of Israel, 'Because you have prayed to Me against Sennacherib king of Assyria, 
+
+<sup>22</sup> 
+this is the word which the Lord has spoken concerning him: "The virgin, the daughter of Zion, Has despised you, laughed you to scorn; The daughter of Jerusalem Has shaken her head behind your back! 
+
+<sup>23</sup> 
+"Whom have you reproached and blasphemed? Against whom have you raised your voice, And lifted up your eyes on high? Against the Holy One of Israel. 
+
+<sup>24</sup> 
+By your servants you have reproached the Lord, And said, 'By the multitude of my chariots I have come up to the height of the mountains, To the limits of Lebanon; I will cut down its tall cedars And its choice cypress trees; I will enter its farthest height, To its fruitful forest. 
+
+<sup>25</sup> 
+I have dug and drunk water, And with the soles of my feet I have dried up All the brooks of defense.' 
+
+<sup>26</sup> 
+"Did you not hear long ago How I made it, From ancient times that I formed it? Now I have brought it to pass, That you should be For crushing fortified cities into heaps of ruins. 
+
+<sup>27</sup> 
+Therefore their inhabitants had little power; They were dismayed and confounded; They were as the grass of the field And the green herb, As the grass on the housetops And grain blighted before it is grown. 
+
+<sup>28</sup> 
+"But I know your dwelling place, Your going out and your coming in, And your rage against Me. 
+
+<sup>29</sup> 
+Because your rage against Me and your tumult Have come up to My ears, Therefore I will put My hook in your nose And My bridle in your lips, And I will turn you back By the way which you came." ' 
+
+<sup>30</sup> 
+"This shall be a sign to you: You shall eat this year such as grows of itself, And the second year what springs from the same; Also in the third year sow and reap, Plant vineyards and eat the fruit of them. 
+
+<sup>31</sup> 
+And the remnant who have escaped of the house of Judah Shall again take root downward, And bear fruit upward. 
+
+<sup>32</sup> 
+For out of Jerusalem shall go a remnant, And those who escape from Mount Zion. The zeal of the Lord of hosts will do this. 
+
+<sup>33</sup> 
+"Therefore thus says the Lord concerning the king of Assyria: 'He shall not come into this city, Nor shoot an arrow there, Nor come before it with shield, Nor build a siege mound against it. 
+
+<sup>34</sup> 
+By the way that he came, By the same shall he return; And he shall not come into this city,' Says the Lord. 
+
+<sup>35</sup> 
+'For I will defend this city, to save it For My own sake and for My servant David's sake.' " 
+
+<sup>36</sup> 
+Then the angel of the Lord went out, and killed in the camp of the Assyrians one hundred and eighty-five thousand; and when people arose early in the morning, there were the corpses--all dead. 
+
+<sup>37</sup> 
+So Sennacherib king of Assyria departed and went away, returned home, and remained at Nineveh. 
+
+<sup>38</sup> 
+Now it came to pass, as he was worshiping in the house of Nisroch his god, that his sons Adrammelech and Sharezer struck him down with the sword; and they escaped into the land of Ararat. Then Esarhaddon his son reigned in his place.

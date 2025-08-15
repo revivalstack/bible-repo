@@ -1,0 +1,77 @@
+<sup>1</sup> 
+Manasseh was twelve years old when he became king, and he reigned fifty-five years in Jerusalem. His mother's name was Hephzibah. 
+
+<sup>2</sup> 
+And he did evil in the sight of the Lord, according to the abominations of the nations whom the Lord had cast out before the children of Israel. 
+
+<sup>3</sup> 
+For he rebuilt the high places which Hezekiah his father had destroyed; he raised up altars for Baal, and made a wooden image, as Ahab king of Israel had done; and he worshiped all the host of heaven and served them. 
+
+<sup>4</sup> 
+He also built altars in the house of the Lord, of which the Lord had said, "In Jerusalem I will put My name." 
+
+<sup>5</sup> 
+And he built altars for all the host of heaven in the two courts of the house of the Lord. 
+
+<sup>6</sup> 
+Also he made his son pass through the fire, practiced soothsaying, used witchcraft, and consulted spiritists and mediums. He did much evil in the sight of the Lord, to provoke Him to anger. 
+
+<sup>7</sup> 
+He even set a carved image of Asherah that he had made, in the house of which the Lord had said to David and to Solomon his son, "In this house and in Jerusalem, which I have chosen out of all the tribes of Israel, I will put My name forever; 
+
+<sup>8</sup> 
+and I will not make the feet of Israel wander anymore from the land which I gave their fathers--only if they are careful to do according to all that I have commanded them, and according to all the law that My servant Moses commanded them." 
+
+<sup>9</sup> 
+But they paid no attention, and Manasseh seduced them to do more evil than the nations whom the Lord had destroyed before the children of Israel. 
+
+<sup>10</sup> 
+And the Lord spoke by His servants the prophets, saying, 
+
+<sup>11</sup> 
+"Because Manasseh king of Judah has done these abominations (he has acted more wickedly than all the Amorites who were before him, and has also made Judah sin with his idols), 
+
+<sup>12</sup> 
+therefore thus says the Lord God of Israel: 'Behold, I am bringing such calamity upon Jerusalem and Judah, that whoever hears of it, both his ears will tingle. 
+
+<sup>13</sup> 
+And I will stretch over Jerusalem the measuring line of Samaria and the plummet of the house of Ahab; I will wipe Jerusalem as one wipes a dish, wiping it and turning it upside down. 
+
+<sup>14</sup> 
+So I will forsake the remnant of My inheritance and deliver them into the hand of their enemies; and they shall become victims of plunder to all their enemies, 
+
+<sup>15</sup> 
+because they have done evil in My sight, and have provoked Me to anger since the day their fathers came out of Egypt, even to this day.' " 
+
+<sup>16</sup> 
+Moreover Manasseh shed very much innocent blood, till he had filled Jerusalem from one end to another, besides his sin by which he made Judah sin, in doing evil in the sight of the Lord. 
+
+<sup>17</sup> 
+Now the rest of the acts of Manasseh--all that he did, and the sin that he committed--are they not written in the book of the chronicles of the kings of Judah? 
+
+<sup>18</sup> 
+So Manasseh rested with his fathers, and was buried in the garden of his own house, in the garden of Uzza. Then his son Amon reigned in his place.
+
+<sup>19</sup> 
+Amon was twenty-two years old when he became king, and he reigned two years in Jerusalem. His mother's name was Meshullemeth the daughter of Haruz of Jotbah. 
+
+<sup>20</sup> 
+And he did evil in the sight of the Lord, as his father Manasseh had done. 
+
+<sup>21</sup> 
+So he walked in all the ways that his father had walked; and he served the idols that his father had served, and worshiped them. 
+
+<sup>22</sup> 
+He forsook the Lord God of his fathers, and did not walk in the way of the Lord. 
+
+<sup>23</sup> 
+Then the servants of Amon conspired against him, and killed the king in his own house. 
+
+<sup>24</sup> 
+But the people of the land executed all those who had conspired against King Amon. Then the people of the land made his son Josiah king in his place. 
+
+<sup>25</sup> 
+Now the rest of the acts of Amon which he did, are they not written in the book of the chronicles of the kings of Judah? 
+
+<sup>26</sup> 
+And he was buried in his tomb in the garden of Uzza. Then Josiah his son reigned in his place.

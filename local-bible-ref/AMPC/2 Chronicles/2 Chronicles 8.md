@@ -1,0 +1,71 @@
+<sup>1</sup> 
+
+At the end of twenty years, in which Solomon had built the house of the Lord and his own house, 
+
+<sup>2</sup> 
+
+The cities which Huram had given to [him] Solomon rebuilt and fortified, and caused the Israelites to dwell there. 
+
+<sup>3</sup> 
+
+And Solomon took Hamath-zobah. 
+
+<sup>4</sup> 
+
+He built Tadmor in the wilderness and all his store cities in Hamath. 
+
+<sup>5</sup> 
+
+Also he built Upper Beth-horon and Lower Beth-horon, fortified cities with walls, gates, and bars, 
+
+<sup>6</sup> 
+
+And Baalath and all the store cities [he] had, and all the cities for his chariots and the cities for his horsemen, and all that Solomon desired to build in Jerusalem, in Lebanon, and in all his dominion. 
+
+<sup>7</sup> 
+
+All the people who were left of the Hittites, Amorites, Perizzites, Hivites, and Jebusites, who were not of Israel, 
+
+<sup>8</sup> 
+
+But descendants of those who were left in the land, whom the Israelites had not destroyed--of them Solomon made a levy for forced labor to this day. 
+
+<sup>9</sup> 
+
+But of the Israelites Solomon made no slaves for his work; but they were men of war, chiefs of his captains, and captains of his chariots and horsemen. 
+
+<sup>10</sup> 
+
+These were the chiefs of King Solomon's officers, 250 in authority over the people. 
+
+<sup>11</sup> 
+
+Solomon brought the daughter of Pharaoh out of the City of David into the house he had built for her, for he said, My wife shall not dwell in the house of David king of Israel, because the places are holy to which the ark of the Lord has come. 
+
+<sup>12</sup> 
+
+Then Solomon offered burnt offerings to the Lord on the Lord's altar which he had built before the [temple] porch or vestibule, 
+
+<sup>13</sup> 
+
+A certain number every day, offering as Moses commanded for the Sabbaths, the New Moons, and the solemn feast days three times in the year--the Feasts of Unleavened Bread, of Weeks, and of Tabernacles. 
+
+<sup>14</sup> 
+
+And he appointed, as ordered by David his father, the divisions of the priests for their service, and the Levites to their offices to praise and to serve before the priests as the duty of every day required, and the gatekeepers also by their divisions at every gate; for so had David the man of God commanded. 
+
+<sup>15</sup> 
+
+And they did not turn from the command of the king to the priests and Levites in any respect or concerning the treasuries. 
+
+<sup>16</sup> 
+
+Thus all the work of Solomon was prepared from the day the foundation of the Lord's house was laid until it was finished. So the house of the Lord was completed. 
+
+<sup>17</sup> 
+
+Then Solomon went to Ezion-geber and to Eloth on the shore of the [Red] Sea in the land of Edom. 
+
+<sup>18</sup> 
+
+And Huram sent him by his servants ships and servants familiar with the sea; and they went with the servants of Solomon to Ophir and took from there 450 talents of gold and brought them to King Solomon.

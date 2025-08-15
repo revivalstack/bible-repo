@@ -1,0 +1,39 @@
+<sup>1</sup> 
+
+Praise the Lord! (Hallelujah!) Blessed (happy, fortunate, to be envied) is the man who fears (reveres and worships) the Lord, who delights greatly in His commandments. 
+
+<sup>2</sup> 
+
+His [spiritual] offspring shall be mighty upon earth; the generation of the upright shall be blessed. 
+
+<sup>3</sup> 
+
+Prosperity and welfare are in his house, and his righteousness endures forever. 
+
+<sup>4</sup> 
+
+Light arises in the darkness for the upright, gracious, compassionate, and just [who are in right standing with God]. 
+
+<sup>5</sup> 
+
+It is well with the man who deals generously and lends, who conducts his affairs with justice. 
+
+<sup>6</sup> 
+
+He will not be moved forever; the [uncompromisingly] righteous (the upright, in right standing with God) shall be in everlasting remembrance. 
+
+<sup>7</sup> 
+
+He shall not be afraid of evil tidings; his heart is firmly fixed, trusting (leaning on and being confident) in the Lord. 
+
+<sup>8</sup> 
+
+His heart is established and steady, he will not be afraid while he waits to see his desire established upon his adversaries. 
+
+<sup>9</sup> 
+
+He has distributed freely [he has given to the poor and needy]; his righteousness (uprightness and right standing with God) endures forever; his horn shall be exalted in honor. 
+
+<sup>10</sup> 
+
+The wicked man will see it and be grieved and angered, he will gnash his teeth and disappear [in despair]; the desire of the wicked shall perish and come to nothing.

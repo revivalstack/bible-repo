@@ -1,0 +1,104 @@
+<sup>1</sup>
+May ilang tao roon na nagbalita kay Jesus tungkol sa mga taga-Galileang ipinapatay ni Pilato habang naghahandog sila sa templo. 
+
+<sup>2</sup>
+Sinabi ni Jesus sa kanila, "Ang akala ba ninyo ay mas makasalanan sila kaysa sa ibang mga taga-Galilea dahil sa nangyari sa kanila? 
+
+<sup>3</sup>
+Hindi! Ngunit tinitiyak ko sa inyo: mapapahamak din kayo tulad nila kung hindi nʼyo pagsisisihan ang mga kasalanan ninyo. 
+
+<sup>4</sup>
+Katulad din ng 18 taong nabagsakan ng tore ng Siloam at namatay. Ang akala ba ninyo ay higit silang makasalanan kaysa sa ibang mga taga-Jerusalem? 
+
+<sup>5</sup>
+Hindi! Ngunit tinitiyak ko sa inyo: mapapahamak din kayo tulad nila kung hindi nʼyo pagsisisihan ang mga kasalanan ninyo." 
+
+<sup>6</sup>
+Pagkatapos, ikinuwento ni Jesus ang talinghaga na ito: "May isang taong may tanim na puno ng igos sa ubasan niya. Pinuntahan niya ito upang tingnan kung may bunga, pero wala siyang nakita. 
+
+<sup>7</sup>
+Kaya sinabi niya sa tagapag-alaga ng kanyang ubasan, 'Tatlong taon na akong pabalik-balik dito para tingnan kung may bunga na ang igos na ito, pero wala pa akong nakikita kahit isa. Putulin mo na lang ang punong iyan. Nasasayang lang ang lupang kinatatayuan niyan!' 
+
+<sup>8</sup>
+Pero sumagot ang tagapag-alaga, 'Hayaan nʼyo na lang po muna ang puno sa taon na ito. Huhukayan ko po ang palibot nito at lalagyan ng pataba. 
+
+<sup>9</sup>
+Baka sakaling magbunga sa darating na taon. Ngunit kung hindi pa rin, putulin na natin.' " 
+
+<sup>10</sup>
+Isang Araw ng Pamamahinga, nagtuturo si Jesus sa sambahan ng mga Judio. 
+
+<sup>11</sup>
+May isang babae roon na 18 taon nang may karamdaman dahil sa ginawa sa kanya ng masamang espiritu. Baluktot ang katawan niya at hindi ito maituwid. 
+
+<sup>12</sup>
+Nang makita siya ni Jesus, tinawag siya at sinabi, "Babae, magaling ka na sa sakit mo." 
+
+<sup>13</sup>
+Pagkatapos, ipinatong niya ang mga kamay niya sa babae, at noon din ay naituwid ng babae ang kanyang katawan at nagpuri siya sa Dios. 
+
+<sup>14</sup>
+Pero nagalit ang namumuno sa sambahan ng mga Judio dahil nagpagaling si Jesus sa Araw ng Pamamahinga. Sinabi niya sa mga tao, "May anim na araw kayo para magtrabaho. Sa mga araw na iyon kayo pumarito upang magpagaling, at huwag sa Araw ng Pamamahinga." 
+
+<sup>15</sup>
+Sinagot siya ni Jesus, "Mga pakitang-tao! Hindi baʼt kinakalagan ninyo ang inyong mga baka o asno at dinadala sa painuman kahit Araw ng Pamamahinga? 
+
+<sup>16</sup>
+Kung sa mga hayop nga ay naaawa kayo, bakit hindi sa babaeng ito na mula rin sa lahi ni Abraham? 18 taon na siyang ginapos ni Satanas, kaya nararapat lang na palayain siya kahit na Araw ng Pamamahinga." 
+
+<sup>17</sup>
+Napahiya ang mga kumakalaban kay Jesus sa sinabi niyang ito. Natuwa naman ang mga tao sa mga kahanga-hangang bagay na ginawa ni Jesus.
+
+<sup>18</sup>
+Nagpatuloy si Jesus sa pagtuturo niya, "Ano kaya ang katulad ng paghahari ng Dios? Sa ano ko kaya ito maihahambing? 
+
+<sup>19</sup>
+Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na parang punongkahoy ang taas, at pinamugaran ng mga ibon ang mga sanga nito." 
+
+<sup>20</sup>
+Sinabi pa ni Jesus, "Sa ano ko pa kaya maihahambing ang paghahari ng Dios? 
+
+<sup>21</sup>
+Katulad ito ng pampaalsang inihalo ng isang babae sa malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." 
+
+<sup>22</sup>
+Nagpatuloy si Jesus sa paglalakbay niya papuntang Jerusalem. Dumaan siya sa mga bayan at nayon at nagturo sa mga tao roon. 
+
+<sup>23</sup>
+May isang nagtanong sa kanya, "Panginoon, kakaunti po ba ang maliligtas?" Sumagot si Jesus, 
+
+<sup>24</sup>
+"Pagsikapan ninyong makapasok sa makipot na pintuan. Tandaan ninyo: marami ang magsisikap na pumasok ngunit hindi makakapasok. 
+
+<sup>25</sup>
+Kapag isinara na ng may-ari ang pinto, maiiwan kayo sa labas na nakatayo, kumakatok at tumatawag, 'Panginoon, papasukin nʼyo po kami!' Ngunit sasagutin niya kayo, 'Hindi ko kayo kilala!' 
+
+<sup>26</sup>
+At sasabihin ninyo, 'Nakasalo po ninyo kami sa pagkain at pag-inom, at nagturo po kayo sa mga lansangan sa bayan namin.' 
+
+<sup>27</sup>
+Sasagot naman siya, 'Hindi ko kayo kilala. Lumayo kayo sa akin, kayong lahat na gumagawa ng masama!' 
+
+<sup>28</sup>
+Iiyak kayo at magngangalit ang inyong ngipin kapag nakita ninyo sina Abraham, Isaac, Jacob at ang lahat ng propeta na napabilang sa paghahari ng Dios, habang kayo naman ay itinaboy sa labas. 
+
+<sup>29</sup>
+Makikita rin ninyo ang mga hindi Judio mula sa ibaʼt ibang dako ng mundo na kasalo sa handaan ng paghahari ng Dios. 
+
+<sup>30</sup>
+May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." 
+
+<sup>31</sup>
+Nang mga sandaling iyon, dumating ang ilang Pariseo at sinabi kay Jesus, "Umalis na po kayo rito dahil gusto kayong ipapatay ni Herodes." 
+
+<sup>32</sup>
+Sumagot si Jesus, "Sabihin ninyo sa asong-gubat na iyon na patuloy akong magpapalayas ng masasamang espiritu at magpapagaling ng may sakit ngayon at hanggang bukas, at sa ikatlong araw ay tatapusin ko na ang gawain ko. 
+
+<sup>33</sup>
+Basta kailangang ipagpatuloy ko ang aking paglalakbay ngayon, bukas at sa makalawa, dahil hindi dapat mamatay ang propeta sa labas ng Jerusalem. 
+
+<sup>34</sup>
+"Kayong mga taga-Jerusalem, binabato ninyo at pinapatay ang mga propeta na isinugo ng Dios sa inyo. Maraming beses ko na kayong gustong tipunin at alagaan gaya ng isang inahing manok na nagtitipon ng kanyang mga sisiw sa ilalim ng kanyang mga pakpak, pero ayaw ninyo. 
+
+<sup>35</sup>
+Kaya bahala na kayo sa sarili ninyo. Sapagkat hindi nʼyo na ako makikita hanggang sa dumating ang panahon na sabihin ninyo, 'Pagpalain ang dumarating sa pangalan ng Panginoon.' "

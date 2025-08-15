@@ -1,0 +1,43 @@
+<sup>1</sup> 
+
+Then I saw another mighty angel coming down from heaven, robed in a cloud, with a [halo like a] rainbow over his head; his face was like the sun, and his feet (legs) were like columns of fire. 
+
+<sup>2</sup> 
+
+He had a little book (scroll) open in his hand. He set his right foot on the sea and his left foot on the land, 
+
+<sup>3</sup> 
+
+And he shouted with a loud voice like the roaring of a lion; and when he had shouted, the seven thunders gave voice and uttered their message in distinct words. 
+
+<sup>4</sup> 
+
+And when the seven thunders had spoken (sounded), I was going to write [it down], but I heard a voice from heaven saying, Seal up what the seven thunders have said! Do not write it down! 
+
+<sup>5</sup> 
+
+Then the [mighty] angel whom I had seen stationed on sea and land raised his right hand to heaven (the sky), 
+
+<sup>6</sup> 
+
+And swore in the name of (by) Him Who lives forever and ever, Who created the heavens (sky) and all they contain, and the earth and all that it contains, and the sea and all that it contains. [He swore] that no more time should intervene and there should be no more waiting or delay, 
+
+<sup>7</sup> 
+
+But that when the days come when the trumpet call of the seventh angel is about to be sounded, then God's mystery (His secret design, His hidden purpose), as He had announced the glad tidings to His servants the prophets, should be fulfilled (accomplished, completed). 
+
+<sup>8</sup> 
+
+Then the voice that I heard from heaven spoke again to me, saying, Go and take the little book (scroll) which is open on the hand of the angel who is standing on the sea and on the land. 
+
+<sup>9</sup> 
+
+So I went up to the angel and asked him to give me the little book. And he said to me, Take it and eat it. It will embitter your stomach, though in your mouth it will be as sweet as honey. 
+
+<sup>10</sup> 
+
+So I took the little book from the angel's hand and ate and swallowed it; it was as sweet as honey in my mouth, but once I had swallowed it, my stomach was embittered. 
+
+<sup>11</sup> 
+
+Then they said to me, You are to make a fresh prophecy concerning many peoples and races and nations and languages and kings.

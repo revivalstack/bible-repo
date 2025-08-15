@@ -1,0 +1,71 @@
+<sup>1</sup> 
+"Woe to Ariel, to Ariel, the city where David dwelt! Add year to year; Let feasts come around. 
+
+<sup>2</sup> 
+Yet I will distress Ariel; There shall be heaviness and sorrow, And it shall be to Me as Ariel. 
+
+<sup>3</sup> 
+I will encamp against you all around, I will lay siege against you with a mound, And I will raise siegeworks against you. 
+
+<sup>4</sup> 
+You shall be brought down, You shall speak out of the ground; Your speech shall be low, out of the dust; Your voice shall be like a medium's, out of the ground; And your speech shall whisper out of the dust. 
+
+<sup>5</sup> 
+"Moreover the multitude of your foes Shall be like fine dust, And the multitude of the terrible ones Like chaff that passes away; Yes, it shall be in an instant, suddenly. 
+
+<sup>6</sup> 
+You will be punished by the Lord of hosts With thunder and earthquake and great noise, With storm and tempest And the flame of devouring fire. 
+
+<sup>7</sup> 
+The multitude of all the nations who fight against Ariel, Even all who fight against her and her fortress, And distress her, Shall be as a dream of a night vision. 
+
+<sup>8</sup> 
+It shall even be as when a hungry man dreams, And look--he eats; But he awakes, and his soul is still empty; Or as when a thirsty man dreams, And look--he drinks; But he awakes, and indeed he is faint, And his soul still craves: So the multitude of all the nations shall be, Who fight against Mount Zion." 
+
+<sup>9</sup> 
+Pause and wonder! Blind yourselves and be blind! They are drunk, but not with wine; They stagger, but not with intoxicating drink. 
+
+<sup>10</sup> 
+For the Lord has poured out on you The spirit of deep sleep, And has closed your eyes, namely, the prophets; And He has covered your heads, namely, the seers. 
+
+<sup>11</sup> 
+The whole vision has become to you like the words of a book that is sealed, which men deliver to one who is literate, saying, "Read this, please." And he says, "I cannot, for it is sealed." 
+
+<sup>12</sup> 
+Then the book is delivered to one who is illiterate, saying, "Read this, please." And he says, "I am not literate." 
+
+<sup>13</sup> 
+Therefore the Lord said: "Inasmuch as these people draw near with their mouths And honor Me with their lips, But have removed their hearts far from Me, And their fear toward Me is taught by the commandment of men, 
+
+<sup>14</sup> 
+Therefore, behold, I will again do a marvelous work Among this people, A marvelous work and a wonder; For the wisdom of their wise men shall perish, And the understanding of their prudent men shall be hidden." 
+
+<sup>15</sup> 
+Woe to those who seek deep to hide their counsel far from the Lord, And their works are in the dark; They say, "Who sees us?" and, "Who knows us?" 
+
+<sup>16</sup> 
+Surely you have things turned around! Shall the potter be esteemed as the clay; For shall the thing made say of him who made it, "He did not make me"? Or shall the thing formed say of him who formed it, "He has no understanding"? 
+
+<sup>17</sup> 
+Is it not yet a very little while Till Lebanon shall be turned into a fruitful field, And the fruitful field be esteemed as a forest? 
+
+<sup>18</sup> 
+In that day the deaf shall hear the words of the book, And the eyes of the blind shall see out of obscurity and out of darkness. 
+
+<sup>19</sup> 
+The humble also shall increase their joy in the Lord, And the poor among men shall rejoice In the Holy One of Israel. 
+
+<sup>20</sup> 
+For the terrible one is brought to nothing, The scornful one is consumed, And all who watch for iniquity are cut off-- 
+
+<sup>21</sup> 
+Who make a man an offender by a word, And lay a snare for him who reproves in the gate, And turn aside the just by empty words. 
+
+<sup>22</sup> 
+Therefore thus says the Lord, who redeemed Abraham, concerning the house of Jacob: "Jacob shall not now be ashamed, Nor shall his face now grow pale; 
+
+<sup>23</sup> 
+But when he sees his children, The work of My hands, in his midst, They will hallow My name, And hallow the Holy One of Jacob, And fear the God of Israel. 
+
+<sup>24</sup> 
+These also who erred in spirit will come to understanding, And those who complained will learn doctrine."

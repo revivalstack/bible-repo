@@ -1,0 +1,47 @@
+<sup>1</sup> 
+
+How lovely are Your tabernacles, O Lord of hosts! 
+
+<sup>2</sup> 
+
+My soul yearns, yes, even pines and is homesick for the courts of the Lord; my heart and my flesh cry out and sing for joy to the living God. 
+
+<sup>3</sup> 
+
+Yes, the sparrow has found a house, and the swallow a nest for herself, where she may lay her young--even Your altars, O Lord of hosts, my King and my God. 
+
+<sup>4</sup> 
+
+Blessed (happy, fortunate, to be envied) are those who dwell in Your house and Your presence; they will be singing Your praises all the day long. Selah [pause, and calmly think of that]! 
+
+<sup>5</sup> 
+
+Blessed (happy, fortunate, to be envied) is the man whose strength is in You, in whose heart are the highways to Zion. 
+
+<sup>6</sup> 
+
+Passing through the Valley of Weeping (Baca), they make it a place of springs; the early rain also fills [the pools] with blessings. 
+
+<sup>7</sup> 
+
+They go from strength to strength [increasing in victorious power]; each of them appears before God in Zion. 
+
+<sup>8</sup> 
+
+O Lord God of hosts, hear my prayer; give ear, O God of Jacob! Selah [pause, and calmly think of that]! 
+
+<sup>9</sup> 
+
+Behold our shield [the king as Your agent], O God, and look upon the face of Your anointed! 
+
+<sup>10</sup> 
+
+For a day in Your courts is better than a thousand [anywhere else]; I would rather be a doorkeeper and stand at the threshold in the house of my God than to dwell [at ease] in the tents of wickedness. 
+
+<sup>11</sup> 
+
+For the Lord God is a Sun and Shield; the Lord bestows [present] grace and favor and [future] glory (honor, splendor, and heavenly bliss)! No good thing will He withhold from those who walk uprightly. 
+
+<sup>12</sup> 
+
+O Lord of hosts, blessed (happy, fortunate, to be envied) is the man who trusts in You [leaning and believing on You, committing all and confidently looking to You, and that without fear or misgiving]!

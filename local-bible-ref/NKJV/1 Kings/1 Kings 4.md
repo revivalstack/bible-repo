@@ -1,0 +1,101 @@
+<sup>1</sup> 
+So King Solomon was king over all Israel. 
+
+<sup>2</sup> 
+And these were his officials: Azariah the son of Zadok, the priest; 
+
+<sup>3</sup> 
+Elihoreph and Ahijah, the sons of Shisha, scribes; Jehoshaphat the son of Ahilud, the recorder; 
+
+<sup>4</sup> 
+Benaiah the son of Jehoiada, over the army; Zadok and Abiathar, the priests; 
+
+<sup>5</sup> 
+Azariah the son of Nathan, over the officers; Zabud the son of Nathan, a priest and the king's friend; 
+
+<sup>6</sup> 
+Ahishar, over the household; and Adoniram the son of Abda, over the labor force. 
+
+<sup>7</sup> 
+And Solomon had twelve governors over all Israel, who provided food for the king and his household; each one made provision for one month of the year. 
+
+<sup>8</sup> 
+These are their names: Ben-Hur, in the mountains of Ephraim; 
+
+<sup>9</sup> 
+Ben-Deker, in Makaz, Shaalbim, Beth Shemesh, and Elon Beth Hanan; 
+
+<sup>10</sup> 
+Ben-Hesed, in Arubboth; to him belonged Sochoh and all the land of Hepher; 
+
+<sup>11</sup> 
+Ben-Abinadab, in all the regions of Dor; he had Taphath the daughter of Solomon as wife; 
+
+<sup>12</sup> 
+Baana the son of Ahilud, in Taanach, Megiddo, and all Beth Shean, which is beside Zaretan below Jezreel, from Beth Shean to Abel Meholah, as far as the other side of Jokneam; 
+
+<sup>13</sup> 
+Ben-Geber, in Ramoth Gilead; to him belonged the towns of Jair the son of Manasseh, in Gilead; to him also belonged the region of Argob in Bashan--sixty large cities with walls and bronze gate-bars; 
+
+<sup>14</sup> 
+Ahinadab the son of Iddo, in Mahanaim; 
+
+<sup>15</sup> 
+Ahimaaz, in Naphtali; he also took Basemath the daughter of Solomon as wife; 
+
+<sup>16</sup> 
+Baanah the son of Hushai, in Asher and Aloth; 
+
+<sup>17</sup> 
+Jehoshaphat the son of Paruah, in Issachar; 
+
+<sup>18</sup> 
+Shimei the son of Elah, in Benjamin; 
+
+<sup>19</sup> 
+Geber the son of Uri, in the land of Gilead, in the country of Sihon king of the Amorites, and of Og king of Bashan. He was the only governor who was in the land.
+
+<sup>20</sup> 
+Judah and Israel were as numerous as the sand by the sea in multitude, eating and drinking and rejoicing. 
+
+<sup>21</sup> 
+So Solomon reigned over all kingdoms from the River to the land of the Philistines, as far as the border of Egypt. They brought tribute and served Solomon all the days of his life. 
+
+<sup>22</sup> 
+Now Solomon's provision for one day was thirty kors of fine flour, sixty kors of meal, 
+
+<sup>23</sup> 
+ten fatted oxen, twenty oxen from the pastures, and one hundred sheep, besides deer, gazelles, roebucks, and fatted fowl. 
+
+<sup>24</sup> 
+For he had dominion over all the region on this side of the River from Tiphsah even to Gaza, namely over all the kings on this side of the River; and he had peace on every side all around him. 
+
+<sup>25</sup> 
+And Judah and Israel dwelt safely, each man under his vine and his fig tree, from Dan as far as Beersheba, all the days of Solomon. 
+
+<sup>26</sup> 
+Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen. 
+
+<sup>27</sup> 
+And these governors, each man in his month, provided food for King Solomon and for all who came to King Solomon's table. There was no lack in their supply. 
+
+<sup>28</sup> 
+They also brought barley and straw to the proper place, for the horses and steeds, each man according to his charge. 
+
+<sup>29</sup> 
+And God gave Solomon wisdom and exceedingly great understanding, and largeness of heart like the sand on the seashore. 
+
+<sup>30</sup> 
+Thus Solomon's wisdom excelled the wisdom of all the men of the East and all the wisdom of Egypt. 
+
+<sup>31</sup> 
+For he was wiser than all men--than Ethan the Ezrahite, and Heman, Chalcol, and Darda, the sons of Mahol; and his fame was in all the surrounding nations. 
+
+<sup>32</sup> 
+He spoke three thousand proverbs, and his songs were one thousand and five. 
+
+<sup>33</sup> 
+Also he spoke of trees, from the cedar tree of Lebanon even to the hyssop that springs out of the wall; he spoke also of animals, of birds, of creeping things, and of fish. 
+
+<sup>34</sup> 
+And men of all nations, from all the kings of the earth who had heard of his wisdom, came to hear the wisdom of Solomon.

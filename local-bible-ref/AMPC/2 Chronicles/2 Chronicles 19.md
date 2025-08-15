@@ -1,0 +1,43 @@
+<sup>1</sup> 
+
+Jehoshaphat the king of Judah returned safely to his house in Jerusalem. 
+
+<sup>2</sup> 
+
+Jehu son of Hanani, the seer, went out to meet him and said to Jehoshaphat, Should you help the ungodly and love those who hate the Lord? Because of this, wrath has gone out against you from the Lord. 
+
+<sup>3</sup> 
+
+But there are good things found in you, for you have destroyed the Asherim out of the land and have set your heart to seek God [with all your soul's desire]. 
+
+<sup>4</sup> 
+
+Jehoshaphat dwelt at Jerusalem, and he went out again among the people from Beersheba to the hill country of Ephraim and brought them back to the Lord, the God of their fathers. 
+
+<sup>5</sup> 
+
+He appointed judges throughout all the fortified cities of Judah, city by city, 
+
+<sup>6</sup> 
+
+And said to the judges, Be careful what you do, for you judge not for man but for the Lord, and He is with you in the matter of judgment. 
+
+<sup>7</sup> 
+
+So now let the reverence and fear of the Lord be upon you; take heed what you do, for there is no injustice with the Lord our God, or partiality or taking of bribes. 
+
+<sup>8</sup> 
+
+Also in Jerusalem, Jehoshaphat set certain Levites, priests, and heads of families of Israel to give judgment for the Lord and decide controversies. When they [of the commission] returned to Jerusalem, 
+
+<sup>9</sup> 
+
+The king charged them, Do this in the fear of the Lord, faithfully, with integrity and a blameless heart. 
+
+<sup>10</sup> 
+
+Whenever any controversy shall come to you from your brethren who dwell in their cities, between blood and blood, between law and commandment, statutes and judgments, you shall warn and instruct them that they may not be guilty before the Lord; otherwise wrath will come upon you and your brethren. Do this and you will not be guilty. 
+
+<sup>11</sup> 
+
+And behold, Amariah the chief priest is over you in all matters of the Lord, and Zebadiah son of Ishmael, the governor of the house of Judah, in all the king's matters; also the Levites will serve you as officers. Deal courageously [be strong and do], and may the Lord be with the good!
